@@ -34,7 +34,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![Working From Home gif](https://media.giphy.com/media/XymXANrzgI4k6FL6zr/giphy.gif)
 
 ### Julian
-
+![Wednesday morning dog gif from giphy](https://media.giphy.com/media/s99lNdV0SCyHu/giphy-downsized.gif)
 
 ### Juliet
 
