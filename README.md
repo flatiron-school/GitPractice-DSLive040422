@@ -28,7 +28,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![stanley on pretzel day gif from giphy](https://media.giphy.com/media/vgUFOWBwBkziE/giphy.gif)
 
 ### Bryan
-
+![Michael and Dwight](https://media.giphy.com/media/IwAZ6dvvvaTtdI8SD5/giphy-downsized.gif)
 
 ### John
 ![Working From Home gif](https://media.giphy.com/media/XymXANrzgI4k6FL6zr/giphy.gif)
