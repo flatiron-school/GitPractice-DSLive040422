@@ -25,7 +25,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![I Understand Nothing](https://media.giphy.com/media/SAAMcPRfQpgyI/giphy-downsized.gif)
 
 ### Brandon
-
+![stanley on pretzel day gif from giphy](https://media.giphy.com/media/vgUFOWBwBkziE/giphy.gif)
 
 ### Bryan
 
