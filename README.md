@@ -34,7 +34,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Julian
-
+![Wednesday morning dog gif from giphy](https://media.giphy.com/media/s99lNdV0SCyHu/giphy-downsized.gif)
 
 ### Juliet
 
