@@ -40,7 +40,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Nazar
-
+![Absorbing everything!](https://media.giphy.com/media/hoQy6gCy0r4PK/giphy.gif)
 
 ### Rishi
 
