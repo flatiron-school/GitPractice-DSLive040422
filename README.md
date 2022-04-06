@@ -19,7 +19,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 ### Lindsey
 
-![wednesday morning cat gif from giphy](https://media.giphy.com/media/wdgX1eCnUd8ZzWIMi4/giphy-downsized.gif)
+![wednesday pug gif from giphy](https://media.giphy.com/media/Cm9wKmKMUlRPvdoHgU/giphy-downsized.gif)
 
 ### Andy
 ![I Understand Nothing](https://media.giphy.com/media/SAAMcPRfQpgyI/giphy-downsized.gif)
