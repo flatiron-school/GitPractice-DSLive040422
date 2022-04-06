@@ -28,7 +28,7 @@ I will either accept your pull request, or send you feedback on what you need to
 
 
 ### Bryan
-
+![Michael and Dwight](https://media.giphy.com/media/IwAZ6dvvvaTtdI8SD5/giphy-downsized.gif)
 
 ### John
 
