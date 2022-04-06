@@ -37,7 +37,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![Wednesday morning dog gif from giphy](https://media.giphy.com/media/s99lNdV0SCyHu/giphy-downsized.gif)
 
 ### Juliet
-
+![confused dog from giphy](https://media.giphy.com/media/3o7527pa7qs9kCG78A/giphy-downsized.gif)
 
 ### Nazar
 
