@@ -40,7 +40,7 @@ I will either accept your pull request, or send you feedback on what you need to
 ![confused dog from giphy](https://media.giphy.com/media/3o7527pa7qs9kCG78A/giphy-downsized.gif)
 
 ### Nazar
-
+![Absorbing everything!](https://media.giphy.com/media/hoQy6gCy0r4PK/giphy.gif)
 
 ### Rishi
 
